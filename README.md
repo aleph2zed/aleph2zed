@@ -13,4 +13,4 @@ ElevenLabs Grant winner. First shows: Jummah Bazaar, school fundraisers, farmers
 
 Before s00k: 23 years in product and growth - Director of Product Management and Head of PLG at Optimizely, Head of BD at Devr, Interim Head of Growth at Stoovo.
 
-**Links:** [s00k.tv](https://s00k.tv) | [LinkedIn](https://www.linkedin.com/in/aleph2zed) | same handle everywhere: aleph2zed
+**Links:** [s00k.tv](https://s00k.tv) | [LinkedIn](https://www.linkedin.com/in/aleph2zed)
